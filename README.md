@@ -6,7 +6,7 @@ The first one I'm getting good at!!!
 - 💞️ I’m looking to collaborate on anything
 Talk to me nice
 - 📫 How to reach me ...
- Facebook-Frank Vicente n/
+ Facebook-Frank Vicente /n
  Textme-9294439995
 
 <!---
