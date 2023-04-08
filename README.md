@@ -1,9 +1,12 @@
 - 👋 Hi, I’m @Bootz999
 - 👀 I’m interested in ...drugs,sex,and coding 
-- 🌱 I’m currently learning ... coding 
-- 💞️ I’m looking to collaborate on ...
+- 🌱 I’m currently learning ... coding and
+How not to pick crazy Spanish women 😍
+The first one I'm getting good at!!! 
+- 💞️ I’m looking to collaborate on anything
+Talk to me nice
 - 📫 How to reach me ...
- Facebook-Frank Vicente 
+ Facebook-Frank Vicente n/
  Textme-9294439995
 
 <!---
